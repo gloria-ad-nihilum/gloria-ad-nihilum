@@ -31,9 +31,11 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31z3dil436qyyex57up4twuisfye&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31z3dil436qyyex57up4twuisfye&redirect=true)
 
-lace divider by kodaswrld on tumblr.
-lace and flower divider by soulari on tumblr.
-layout by hweism on tumblr.
+𝘭𝘢𝘤𝘦 𝘥𝘪𝘷𝘪𝘥𝘦𝘳 𝘣𝘺 𝘬𝘰𝘥𝘢𝘴𝘸𝘳𝘭𝘥 𝘰𝘯 𝘵𝘶𝘮𝘣𝘭𝘳.
+
+𝘣𝘰𝘸 𝘢𝘯𝘥 𝘧𝘭𝘰𝘸𝘦𝘳 𝘥𝘪𝘷𝘪𝘥𝘦𝘳 𝘣𝘺 𝘴𝘰𝘶𝘭𝘢𝘳𝘪 𝘰𝘯 𝘵𝘶𝘮𝘣𝘭𝘳.
+
+𝘭𝘢𝘺𝘰𝘶𝘵 𝘣𝘺 𝘩𝘸𝘦𝘪𝘴𝘮 𝘰𝘯 𝘵𝘶𝘮𝘣𝘭𝘳.
 
 ![image](https://github.com/user-attachments/assets/fb89afd2-ff55-428f-b6c8-72c8609dbdc8)![image](https://github.com/user-attachments/assets/a992174a-7bfa-4e86-922d-dbdfda457023)
 
