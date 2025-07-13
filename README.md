@@ -45,13 +45,17 @@
 
 𝘢𝘯𝘨𝘦𝘭 𝘵𝘩𝘦𝘮𝘦𝘥 𝘥𝘪𝘷𝘪𝘥𝘦𝘳 𝘣𝘺 @𝘩𝘢𝘦𝘤𝘶𝘯𝘵 𝘰𝘯 𝘵𝘶𝘮𝘣𝘭𝘳.
 
+𝘬𝘥𝘫, 𝘩𝘴𝘺, 𝘢𝘯𝘥 𝘺𝘫𝘩 𝘮𝘢𝘵𝘤𝘩𝘪𝘯𝘨 𝘭𝘢𝘺𝘰𝘶𝘵 𝘣𝘺 @𝘤𝘩𝘪𝘤𝘩𝘪𝘳𝘪𝘥 𝘰𝘯 𝘵𝘶𝘮𝘣𝘭𝘳.
+
 ![image](https://github.com/user-attachments/assets/77d38e89-182d-4d37-8cf8-8a2738e984d8)
 
 ![image](https://github.com/user-attachments/assets/75a6b947-bc59-486c-b3b0-088628edd190)‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/9239c353-a1b2-434a-a40e-3428e35a17ce)
  ‎ ‎ ![image](https://github.com/user-attachments/assets/c36684a0-4b88-4cfc-85f8-5cc78ca3b2b1)
 
 
+checkout my friends ( <a href="@citophonk">cito</a> ) art on tumblr, leave a like / comment or a reblog if you like his awesome art !
 
+( his accounts based on <a href="https://store.steampowered.com/app/312520/Rain_World/">rainworld</a> stuff, check it out very fun and rage inducing game )
 
 ![image](https://github.com/user-attachments/assets/8b7452ed-478f-4265-9d0b-e2c76adb3282)
 
