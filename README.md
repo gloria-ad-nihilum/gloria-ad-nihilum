@@ -53,7 +53,7 @@
  ‎ ‎ ![image](https://github.com/user-attachments/assets/c36684a0-4b88-4cfc-85f8-5cc78ca3b2b1)
 
 
-checkout my friends ( <a href="@citophonk">cito</a> ) art on tumblr, leave a like / comment or a reblog if you like his awesome art !
+checkout my friends ( @𝙘𝙞𝙩𝙤𝙥𝙝𝙤𝙣𝙠 ) art on tumblr, leave a like / comment or a reblog if you like his awesome art !
 
 ( his accounts based on <a href="https://store.steampowered.com/app/312520/Rain_World/">rainworld</a> stuff, check it out very fun and rage inducing game )
 
